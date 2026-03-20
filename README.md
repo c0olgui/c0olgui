@@ -39,7 +39,7 @@
 　    bodily $${\color{#d42411}5teen}$$⠀⠀⠀🍎       
 </p>
   <p align="center">
-　　　　𝜗𝒞   　artist   $${\color{#d42411}system}$$
+　　　　𝜗𝒞   　heavy $${\color{#d42411}comf}$$ w/ mafioso's, elliots, 7n7's
     </p>
 
 <p align="center">
