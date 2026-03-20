@@ -4,7 +4,7 @@
 <a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Lobster+Two&size=35&pause=1000&color=D42011&center=true&width=500&lines=Buried+in+his+father's+arms" alt="Typing SVG" /></a>
   
 <p align="center">
-<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Lobster+Two&size=35&duration=6500&pause=200&color=D42011&center=true&width=750&lines=.+.+.+as+if+he's+still+small+enough+to+hide+there" alt="Typing SVG" /></a>
+<a href="https://git.io/typing-svg"><img src="https://readme-typing-svg.demolab.com?font=Lobster+Two&size=35&duration=5500&pause=200&color=D42011&center=true&width=750&lines=.+.+.+as+if+he's+still+small+enough+to+hide+there" alt="Typing SVG" /></a>
 </p>
 
 <p align="center">
